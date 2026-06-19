@@ -1,0 +1,2 @@
+# sito-inutile.
+È UN SITO INUTILE, SE LO APRI, PERDI TEMPO
